@@ -9,6 +9,6 @@ Jul 21	HTML5 semantic tags, forms, accessibility basics. Set up VS Code + Chrome
 - I prepared 50 theoretical and 50 practical question/answers for form in html.
 - learnt basics of VS code and chrome dev tools.
 
-# Day 1  -  01/09/2026 (Tuseday)
+# Day 2  -  18/09/2026 (Friday)
 
 
