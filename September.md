@@ -12,3 +12,5 @@ Jul 21	HTML5 semantic tags, forms, accessibility basics. Set up VS Code + Chrome
 # Day 2  -  18/09/2026 (Friday)
 
 - SDLC & STLC life cycles
+
+# Day 3  -  19/09/2026 (Saturday)
