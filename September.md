@@ -18,3 +18,8 @@ Jul 21	HTML5 semantic tags, forms, accessibility basics. Set up VS Code + Chrome
 - Types of Testing 
 - Improved resume for QA manual/automation
 - Linkedin imprisation
+
+# Day 4  -  23/09/2026 (Wednesday)
+
+- Applied to some remote jobs
+
