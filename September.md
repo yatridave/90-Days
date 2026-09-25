@@ -23,4 +23,3 @@ Jul 21	HTML5 semantic tags, forms, accessibility basics. Set up VS Code + Chrome
 
 - Applied to some remote jobs
 
-# Day 5  -  25/09/2026 (Friday)
