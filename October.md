@@ -4,3 +4,8 @@ Day 1 - 01/10/2026 (Thursday)
 - Applied to 100 jobs
 
 Day 2 - 02/10/2026 (Friday)
+
+Holiday
+
+Day 3 - 03/10/2026 (Saturday)
+- 12 to 12.30 - Book read chankya niti 
