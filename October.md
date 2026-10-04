@@ -9,3 +9,5 @@ Holiday
 
 Day 3 - 03/10/2026 (Saturday)
 - 12 to 12.30 - Book read chankya niti 
+
+Day 4 - 04/10/2026 (Sunday)
