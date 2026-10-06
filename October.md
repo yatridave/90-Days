@@ -12,3 +12,8 @@ Day 3 - 03/10/2026 (Saturday)
 
 Day 4/5 - 04/10/2026 (Sunday) / 05/10/2026 (monday)
 
+Damnnn.... Aaj bhi kuch nahi kiya maine 
+
+Day 6 - 06/10/2026 (Tuseday) 
+
+Applied to the jobs like crazyyyyy
