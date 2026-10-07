@@ -20,5 +20,5 @@ Applied to the jobs like crazyyyyy
 
 Day 7 - 07/10/2026 (Wednesday)
 
-- 3 to 3.30 : psycho-cybernetics: snap-back effect topic
+- 3 to 4.30 : psycho-cybernetics: snap-back effect topic
 - 10 to 11 - QA Interview Q&A YT link (https://youtu.be/Zkeqvl8cxGc?si=9LrCD_snmlLH-0no)
