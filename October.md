@@ -24,4 +24,3 @@ Day 7 - 07/10/2026 (Wednesday)
 - 10 to 11 - QA Interview Q&A YT link (https://youtu.be/Zkeqvl8cxGc?si=9LrCD_snmlLH-0no)
 
 
-Day 8 - 09/10/2026 (Friday)
