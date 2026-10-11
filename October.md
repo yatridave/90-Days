@@ -24,4 +24,4 @@ Applied to the jobs like crazyyyyy
 
 
 
-Day 7 - 07/10/2026 (Wednesday)
+Day 7 - 11/10/2026 (Monday)
