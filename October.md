@@ -23,6 +23,7 @@ Applied to the jobs like crazyyyyy
 - 10 to 11 - QA Interview Q&A YT link (https://youtu.be/Zkeqvl8cxGc?si=9LrCD_snmlLH-0no)
 
 
+Day 7 - 15/10/2026 (Thursday) 
 
 
 
