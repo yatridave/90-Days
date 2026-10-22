@@ -35,3 +35,11 @@ Reading :
 Productivity : ❎
 
 22.
+Reading :
+- Bhagwat Geeta - ❎
+- Chankya niti - Adhyay completed
+- Psycho cybernetics - ❎
+- Norwegian wood - ❎
+- Harry potter 1 - ❎
+
+Productivity :
