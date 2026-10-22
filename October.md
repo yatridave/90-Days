@@ -22,7 +22,15 @@ Applied to the jobs like crazyyyyy
 - 3 to 4.30 : psycho-cybernetics: snap-back effect topic
 - 10 to 11 - QA Interview Q&A YT link (https://youtu.be/Zkeqvl8cxGc?si=9LrCD_snmlLH-0no)
 
+# 21 to 30 October
 
+21.
+Reading :
+Bhagwat Geeta - Adhyay 6 started
+Chankya niti - Adhyay 4 started
+Psycho cybernetics - Page 28
+Norwegian wood - ❎
+Harry potter 1 - ✅
 
 
 
