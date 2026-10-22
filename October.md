@@ -26,11 +26,11 @@ Applied to the jobs like crazyyyyy
 
 21.
 Reading :
-Bhagwat Geeta - Adhyay 6 started
-Chankya niti - Adhyay 4 started
-Psycho cybernetics - Page 28
-Norwegian wood - ❎
-Harry potter 1 - ✅
+- Bhagwat Geeta - Adhyay 6 started
+- Chankya niti - Adhyay 4 started
+- Psycho cybernetics - Page 28
+- Norwegian wood - ❎
+- Harry potter 1 - ✅
 
 
 
