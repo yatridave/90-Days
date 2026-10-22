@@ -45,6 +45,6 @@ Reading :
 Productivity :
 - SDLC
 - STLC
+- Work PO/BA product owner & business analyst
 - BRD
 - SRS
-- 
