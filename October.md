@@ -43,3 +43,8 @@ Reading :
 - Harry potter 1 - ❎
 
 Productivity :
+- SDLC
+- STLC
+- BRD
+- SRS
+- 
