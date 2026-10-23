@@ -42,7 +42,8 @@ Reading :
 - Norwegian wood - ❎
 - Harry potter 1 - ❎
 
-Productivity :
+Productivity : ❎
+
 - SDLC
 - STLC
 - Work PO/BA product owner & business analyst
@@ -57,6 +58,7 @@ Reading :
 - Norwegian wood - ❎
 - Harry potter 1 - ✅
 
+Productivity : 
 24. 
 Reading :
 - Bhagwat Geeta - ❎
