@@ -58,3 +58,9 @@ Reading :
 - Harry potter 1 - ✅
 
 24. 
+Reading :
+- Bhagwat Geeta - ❎
+- Chankya niti - ❎
+- Psycho cybernetics - ❎
+- Norwegian wood - ❎
+- Harry potter 1 - ✅
