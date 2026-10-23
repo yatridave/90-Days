@@ -37,7 +37,7 @@ Productivity : ❎
 22.
 Reading :
 - Bhagwat Geeta - ❎
-- Chankya niti - Adhyay completed
+- Chankya niti - Adhyay 4 completed
 - Psycho cybernetics - ❎
 - Norwegian wood - ❎
 - Harry potter 1 - ❎
@@ -50,3 +50,11 @@ Productivity :
 - SRS
 
 23.
+Reading :
+- Bhagwat Geeta - Adhyay 6 started
+- Chankya niti - Adhyay 5 started
+- Psycho cybernetics - Page 28
+- Norwegian wood - ❎
+- Harry potter 1 - ✅
+
+24. 
