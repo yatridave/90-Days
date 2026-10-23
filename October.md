@@ -58,11 +58,12 @@ Reading :
 - Norwegian wood - ❎
 - Harry potter 1 - ✅
 
-Productivity : 
+Productivity : ❎
+
 24. 
 Reading :
-- Bhagwat Geeta - ❎
-- Chankya niti - ❎
+- Bhagwat Geeta - Adhyay 6 completed
+- Chankya niti - Adhyay 5 completed
 - Psycho cybernetics - ❎
 - Norwegian wood - ❎
 - Harry potter 1 - ✅
